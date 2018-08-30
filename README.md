@@ -1,1 +1,0 @@
-# gidsadaporn.github.io
